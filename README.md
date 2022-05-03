@@ -1,4 +1,4 @@
-# Hive-Colony-Expanded
+# Hive Colony Expanded
 This is a version of Hive²:Colony prepared for 3D printers.
 Includes all expansions from Hive²: Colony + a new piece piece out of existing creatures and a variant for the firefly.
 
