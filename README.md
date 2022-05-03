@@ -6,16 +6,12 @@ Rules translated to Spanish
 
 https://pdfhost.io/v/FT9v7Xt12_Hive_manual_spanish
 
-
 All original English information about the rules is in the qr code from the manual.
 
 https://boardgamegeek.com/boardgame/2655/hive
 
-
 If you liked the game consider supporting the original author.
 
 https://www.gen42.com/games/hive
-
-
 
 Uploaded with permission of Stehpen Taylor.
