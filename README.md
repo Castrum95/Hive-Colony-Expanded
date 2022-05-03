@@ -13,4 +13,4 @@ If you liked the game consider supporting the original author.
 https://www.gen42.com/games/hive
 
 
-Posted with permission of Stehpen Taylor.
+Uploaded with permission of Stehpen Taylor.
