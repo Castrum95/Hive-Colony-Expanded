@@ -7,7 +7,7 @@ Rules translated to Spanish -
 All original English information about the rules is in the qr code from the manual.
 https://boardgamegeek.com/boardgame/2655/hive
 
-If you liekd the game consider supporting the original author.
+If you liked the game consider supporting the original author.
 https://www.gen42.com/games/hive
 
 
