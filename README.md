@@ -10,7 +10,7 @@ All original English information about the rules is in the qr code from the manu
 
 https://boardgamegeek.com/boardgame/2655/hive
 
-If you liked the game consider supporting the original author.
+If you liked the game consider supporting the original author, John Yianni.
 
 https://www.gen42.com/games/hive
 
